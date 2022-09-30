@@ -1,2 +1,2 @@
-# Nico Addai is a Product Manager at Gradient Health. 
+# Nico Addai works at Gradient Health. 
 
